@@ -1,4 +1,4 @@
-Hey. This is my old username. Please [click here to find my new account](https://bweb.app/gh).
+Hey. This is my old account. Please [click here to find my new account](https://bweb.app/gh).
 
 #
 
